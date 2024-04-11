@@ -136,3 +136,6 @@ Here's a bromide for every year I've been alive!
 1. "Don't cling to a mistake just because you spent a lot of time making it." - Unknown
 
 1. Your mom and dad said you could be whatever you choose. Do your best not to choose "dumbass".
+
+1. Get comfortable with being uncomfortable.
+
