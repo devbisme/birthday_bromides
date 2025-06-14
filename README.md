@@ -137,5 +137,7 @@ Here's a bromide for every year I've been alive!
 
 1. Your mom and dad said you could be whatever you choose. Do your best not to choose "dumbass".
 
+2. I guess since I'm ending this, I might as well end with a favorite line from a movie: "You think this is a big story with a grand ending, but it's a small story and it ends here."
+
 1. Get comfortable with being uncomfortable.
 
